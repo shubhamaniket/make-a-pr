@@ -1,3 +1,3 @@
 **Academics**
 
-Undergraduate at Vellore Institute of Technology
+Student at Vellore Institute of Technology
